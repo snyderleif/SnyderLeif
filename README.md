@@ -1,3 +1,1 @@
-- Greetings! You've found @MadDogTerrible
-- Any minute now, my machine is going to pack its things and walk out the door and steal my pickup truck.
-- 😠🐕💔
+- You've found @SnyderL
